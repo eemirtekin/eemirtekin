@@ -1,2 +1,0 @@
-# Emrah Emirtekin
-Emrah Emirtekin
